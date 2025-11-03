@@ -90,7 +90,7 @@ These designs reflect a deep focus on **clarity, usability, and emotion** — al
 
 **[Your Name]** 
 NAME:S.THULASI DEVI
-📧 thulasisuresh@gmail.com
+📧 thulasissuresh@gmail.com
 ---
 
 <p align="center">
